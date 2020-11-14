@@ -1,1 +1,0 @@
-# hecekgl.github.io
